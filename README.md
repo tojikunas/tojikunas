@@ -1,6 +1,6 @@
 <p align="center"> you got the funk, gets me stupid, gets me drunk</p>
 <div align="center">
-    <img src="https://file.garden/amCuDGcSQR36Di_1/cute%20tjkn"width="490"/>
+    <img src="https://file.garden/amCuDGcSQR36Di_1/cute%20tjkn%20n2"width="490"/>
 </div>
   ᲼ 
 <p align="center">✦  ᲼ luc or toji   he it she   18 (11/17)   black asian</p>
